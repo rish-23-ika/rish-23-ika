@@ -1,6 +1,6 @@
 - 👋 Hi, I’m RISHIKA RASTOGI @rish-23-ika .
 - #LEARNER 
-- GOING TO STUDY IN BENNET UNIVERSITY IN A MONTH.   
+- STUDYING IN BENNET UNIVERSITY.   
 - Linked In: https://www.linkedin.com/in/rish-23-ika/
 
 <!---
